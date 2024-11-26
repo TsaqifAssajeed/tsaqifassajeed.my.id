@@ -1,1 +1,1 @@
-# tsaqifassajeed.github.io
+# tsaqifassajeed.my.id
